@@ -4,10 +4,5 @@ Also contains programming language books.
 if this box is usefull to you ... 
 share to people and help others..
 
-
-with great power comes great responsibilities.
 ** i don't have any copyrights for those books and videos **
-This is only for freedom in Education..\
-
-
-i thank all the authors... whose books and video contents has been shared.
+** Pls don't sue me**
